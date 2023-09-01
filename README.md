@@ -1,6 +1,6 @@
 ### Me chamo Camila Fernanda
 ### tenho 16 anos
-### Estudo na escola escola EStadual domingos Francisco Zardo
+### Estudo na escola escola Estadual domingos Francisco Zardo
 ### Tenho 5 irmãos
 ### Gosto de estudar
 ### Trabalho na empresa Cvale 
